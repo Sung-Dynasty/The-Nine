@@ -1,0 +1,5 @@
+The Nine
+
+
+
+We admit nothing, omit everything and emit vibrations in the shape of various organized categories of lyrical subjective matter containing rhythmically orchestrated mathematically grouped patterns of musical notations that are set in pitch tone and octave and tweaked to precise settings and configured in the shape of waves as to form oscillating vibrations of charged energy that can be deciphered by a rather complex set of tiny bones in the inner-ear and bounced of a thin amount of cartilage creating  a psycho active chemically formed hallucination that is shared by others and manipulated by your minds-eye into various non descriptive thoughts forming thought patterns that acclimate to the perceivers focal point and incline a state of false delirium and enact an attunement to the literary message being conveyed and the harmonic vibrations as conveyed by such transmitted by such aforementioned apparatuses that form an relationship between what you can perceive and what you believe.
